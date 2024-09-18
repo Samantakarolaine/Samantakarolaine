@@ -6,4 +6,6 @@ Meu nome é Karolaine Samanta
 - estudo no Colégio Estadual Humberto De Alencar Castelo Branco.
 - Utilizo esta plataforma para compartilhar meus projetos e  para fazer organizaçõs.
 
-- ### você pode entrar em contato comigo : s
+- ### você pode entrar em contato comigo 📪 
+
+karolainesamanta15@gmail.com
