@@ -9,3 +9,7 @@ Meu nome é Karolaine Samanta
 - ### você pode entrar em contato comigo 📪 
 
  - karolainesamanta15@gmail.com
+
+
+
+![](https://media1.tenor.com/m/vkPS34gd_voAAAAC/dance-dancing.gif)
