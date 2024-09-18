@@ -8,4 +8,4 @@ Meu nome é Karolaine Samanta
 
 - ### você pode entrar em contato comigo 📪 
 
-karolainesamanta15@gmail.com
+ - karolainesamanta15@gmail.com
