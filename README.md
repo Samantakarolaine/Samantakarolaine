@@ -12,4 +12,4 @@ Meu nome é Karolaine Samanta Dias Nogueira
 
 
 
-![](https://tenor.com/pt-BR/view/lionel-messi-thumbs-up-soccer-player-foot-ball-gif-10564385). 
+![](https://tenor.com/pt-BR/view/lionel-messi-thumbs-up-soccer-player-foot-ball-gif-10564385) 
