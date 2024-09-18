@@ -2,7 +2,7 @@
 
 Meu nome é Karolaine Samanta Dias Nogueira
 
-- Estou estudando na [Alura ] (https://www.alura.com.br)
+- Estou estudando na [alura ](https://www.alura.com.br)
 - estudo no Colégio Estadual Humberto De Alencar Castelo Branco.
 - Utilizo esta plataforma para compartilhar meus projetos e  para fazer organizaçõs.
 
